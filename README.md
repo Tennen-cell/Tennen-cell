@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: https://www.tiktok.com/@ten_nen2?is_from_webapp=1&sender_device=pc
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love learning logic, algorithms, patterns, and organizing things and also I am very indeed is a socialy awkward person 
+- ⚡ Fun fact: I love learning logic, algorithms, patterns, and organizing things
