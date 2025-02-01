@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on learning new things
 - 🤔 I’m looking for help with Coding
 - 💬 Ask me about anything
-- 📫 How to reach me: https://www.tiktok.com/@ten_nen2?is_from_webapp=1&sender_device=pc
+- 📫 How to reach me: 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love learning logic, algorithms, patterns, and organizing things
